@@ -1,4 +1,4 @@
-![tips](https://user-images.githubusercontent.com/89854361/131517166-a4425cd5-efb9-43f8-8e23-7fb112fa959f.png)
+![tips](tips.png)
 
 你不必對每件工作都百分百上心。
 
