@@ -1,3 +1,5 @@
+![tips](https://user-images.githubusercontent.com/89854361/131517166-a4425cd5-efb9-43f8-8e23-7fb112fa959f.png)
+
 你不必對每件工作都百分百上心。
 
 這話乍一聽有點違和，但細想想，有它的道理。
